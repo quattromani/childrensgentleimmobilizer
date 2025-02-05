@@ -524,6 +524,7 @@ To provide a glimpse into the testing and real-world trials of The Pediatric Pos
 - Former Radiology Consultant to the office of the United States Army Surgeon General
 - U.S. Army Colonel (Medical Department), Retired
 - Pediatric Radiology Fellowship, Cincinnati Children's Hospital (1974-76)
+- Wake Forest University (Class of '62)
 
 **Patricia Rae Quattromani**
 *Co-Inventor and Product Designer*
